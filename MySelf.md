@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PsyDarth
+- 👀 I’m interested in Anime/Coding/Tech Stuff
+- 🌱 I’m currently learning C
+- 💞️ I’m looking to collaborate On Learning C
+- 📫 How to reach me instagram --> psy_darth
